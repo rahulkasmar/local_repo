@@ -1,1 +1,1 @@
-# Rahu Kumar IIT Kanpur ME
+# Rahul Kumar IIT Kanpur ME
